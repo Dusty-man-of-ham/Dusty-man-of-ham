@@ -1,0 +1,5 @@
+- 👋 Hi, i am a fucking crackhead
+- 👀 I’m interested in joe mama
+- 🌱 I’m currently learning how to make yo mama jokes
+- 💞️ I’m looking to collaborate on the shit in my toilet
+- 📫 How to reach me: dont
